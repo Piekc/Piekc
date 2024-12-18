@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Piekc (Pía Flores)
+- 👋 Hi, I’m @Piekc (Pía Flores 18 yrs old)
 - 👀 I’m interested in learning how to program videogames and learn more programming languages
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on Red Barrels Games in the future
