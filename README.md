@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Red Barrels Games in the future
 - 📫 How to reach me piaf942@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact:I love corridos tumbados  
+- ⚡ Fun fact:I love corridos tumbados and Outlast comics
 
 <!---
 Piekc/Piekc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
